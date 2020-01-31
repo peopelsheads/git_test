@@ -1,2 +1,2 @@
 #Beta of phyton app
-Lel phyton
+Lel phyton i dont konw it.
